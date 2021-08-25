@@ -1,0 +1,1 @@
+# nlg-kazakh-names
